@@ -1,3 +1,5 @@
+0721816840
+mbuyelomuremela05@gmail.com
 Hi, I’m mbuyelo muremela
 Recent BSc Informatics graduate from the University of South Africa (UNISA), seeking a graduate program or internship in software/web development. Eager to apply theoretical knowledge and skills in a practical setting.
 Seeking a collaborative environment to learn, grow, and contribute to innovative projects.
